@@ -1,0 +1,2 @@
+# verygoodopportunitythatwedonthavetodobutstillhavetodo
+im so thankful for this opportunity
